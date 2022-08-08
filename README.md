@@ -26,22 +26,7 @@ Features of Complete Responsive Apartment Management System
 • Clear dummy data action.
 • Full of features.
 
-Music Used 
-Happy: https://elements.envato.com/happy-QAV...
-
 Please refer to the video demo on how to run and download this system.
-
-Subscribe To "SerBermz” Channel here: https://bit.ly/serbermz​​​​​​​​ 
-🛒Support A Creator: SerBermz
-💓 Facebook Page: https://www.facebook.com/BermzISware/​​
-✉️Business email: serbermz2020@gmail.com
-
-#serbermz #campcodes #apartmentsoftware
-
-Buy Me A Cup of Coffee - 
----------------------------------------------------
-https://bit.ly/3cMM2vG
----------------------------------------------------
 
 People here are also searching for:
 apartment management system project documentation,
